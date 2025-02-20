@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on SOMEONE.
 - 📫 You can reach me ( 9794361575 ,777vikaskashyap777@gmail.com)
 - 😄 Pronouns: he/his/him
-- ⚡ Fun fact: not from a gen Z generation.
+
 
 <!---
 Vikaskashyap0/Vikaskashyap0 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
